@@ -231,4 +231,4 @@ God of War is available as a full free version with all features and updates inc
 Dive into the world of **God of War** today! Download now and embark on an epic adventure!
 
 ---
-**Last updated:** 2026-09-23 21:56:24 UTC
+**Last updated:** 2026-09-24 00:12:54 UTC
